@@ -1,1 +1,0 @@
-# zakiyahfarooque.github.io
